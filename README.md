@@ -1,3 +1,1 @@
-Im pretty cool
-Im Inter8 but apparently that was stolen so whatever
-Im lnter8
+Inter8 was stolen
